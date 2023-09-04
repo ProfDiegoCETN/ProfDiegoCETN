@@ -10,6 +10,10 @@
 📬Contato: diego.moraes06@escola.pr.gov.br
 
 📸 [Instagram](https://www.instagram.com/diegxmoraes/)
+
+Nada é tão dificil que não possa piorar
+
+![](https://media.tenor.com/YAOhbZ5GZy4AAAAd/nazar%C3%A9.gif)
 <!--
 **ProfDiegoCETN/ProfDiegoCETN** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
